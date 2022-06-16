@@ -12,4 +12,4 @@
 ## About Me
 
 ##### [Linkedin](https://www.linkedin.com/in/abdelmoubine/ "Linkedin")
-##### [VK](https://vk.com/abdelmoubine2 "VK")
+##### [VK](https://vk.com/abdelmoubine2/ "VK")
